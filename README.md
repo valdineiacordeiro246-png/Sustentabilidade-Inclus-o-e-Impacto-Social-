@@ -64,4 +64,6 @@ Conclusão: Integrar sustentabilidade, inclusão e impacto social na TI é estra
 
 www.linkedin.com/in/valdineia-cordeiro-49a5012a7
 
+https://github.com/valdineiacordeiro246-png/Sustentabilidade-Inclus-o-e-Impacto-Social-.git
+
 
